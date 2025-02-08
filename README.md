@@ -5,7 +5,6 @@
 
 - 📫 How to reach me **mohamedmahdy.info@gmail.com**
 
-- 📄 Know about my experiences [My CV](https://drive.google.com/file/d/1ZU9Y6ct8GdRG7nXgGQ2eCVHjfHLN741a/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
